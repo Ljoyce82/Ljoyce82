@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything mainly video game-related development.
 - 📫 How to reach me message me on here or thru discord rpgdad82mtn
 - 😄 Pronouns:...
-- ⚡ Fun fact: I love build and mod keyboards
+- ⚡ Fun fact: I love build and mod keyboards, play tabletop games and favorite typ video game open world sand box rpgs top down roguelikes.
 
 <!---
 Ljoyce82/Ljoyce82 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
