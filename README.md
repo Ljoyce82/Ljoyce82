@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ljoyce82
-- 👀 I’m interested in game development, coding, and any geeky thing you think of. 
+- 👀 I’m interested in game development, coding, and any geeky thing you can think of. 
 - 🌱 I’m currently learning C#, Java, HTML
-- 💞️ I’m looking to collaborate on anything mainly video game-related development.
+- 💞️ I’m looking to collaborate on anything but focus more towards video game-related development.
 - 📫 How to reach me message me on here or thru discord rpgdad82mtn
 - 😄 Pronouns:...
 - ⚡ Fun fact: I love build and mod keyboards, play tabletop games and favorite typ video game open world sand box rpgs top down roguelikes.
